@@ -12,3 +12,6 @@
 
 
 contact @saransh.official.iitkgp@gmail.com / saransh.gupta@iitkgp.ac.in for more details/help regarding the repository.
+
+
+visit my website: https://saranshqm.github.io/saransh/ for more blogs
